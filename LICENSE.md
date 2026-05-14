@@ -1,4 +1,4 @@
-# 
+# OneNote for Windows automatic Script: folders & offline-access offers the most advanced OneNote for Windows script, with folders and offline-access. Ideal for Windows
 
 
 
